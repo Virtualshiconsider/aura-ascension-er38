@@ -1,4 +1,4 @@
-
+secure Script for aura ascension is the best aura ascension Script, featuring speed and auto-farm. Safe and powerful for all your needs.
 
 
 
